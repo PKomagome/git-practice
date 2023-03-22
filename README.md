@@ -1,1 +1,1 @@
-hoge
+Thank you!
